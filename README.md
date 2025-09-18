@@ -1,1 +1,1 @@
-# ShmonovTE_RIS-25-2b_-racticeSTU
+# ShmonovTE_RIS-25-2b_PracticePSTU
